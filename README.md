@@ -1,6 +1,6 @@
 ### It's me, hi
 
-meu nome é Bianca e eu gosto da Taylor Swift 
-beijos e bom dia boa tarde e boa noite
+My name is Bianca and i love Taylor Swift 💜
 
+ kiss and good morning and good afternoon and good nigth 
 
